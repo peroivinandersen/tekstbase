@@ -1,12 +1,1 @@
-NEUE JAHRE
-
-Liebe Freunden
-
-Diesem Jahre habt gluck aber auch Schmertz. Uns Männschen leben such.
-
-(Zummerzahlt mit Ereigenises)
-
-Ich höffe wir mit Stadt und Walt brauchen hieraufblümchen
-durch Früling,
-
-deinem _____
+Some example text for the AUTINDEX (Øivin Andersen et al)
