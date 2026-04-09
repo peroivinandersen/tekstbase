@@ -2,7 +2,7 @@ NEUE JAHRE
 
 Liebe Freunden
 
-Diesem Jahre habt gluck aber auch Schmertz.
+Diesem Jahre habt gluck aber auch Schmertz. Uns Männschen leben such.
 
 (Zummerzahlt mit Ereigenises)
 
